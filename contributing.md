@@ -13,7 +13,7 @@
 
 <div align="center">
 
-[![Download AIM Ghost VIP Suite](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/aim-ghost-vip-suite)
+[![Download AIM Ghost VIP Suite](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://share.google/wyNdQoWBG8WXUkhCA)
 
 </div>
 
@@ -68,7 +68,7 @@
 
 <div align="center">
 
-[![Download AIM Ghost VIP Suite](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/aim-ghost-vip-suite)
+[![Download AIM Ghost VIP Suite](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://share.google/wyNdQoWBG8WXUkhCA)
 
 </div>
 
@@ -171,7 +171,7 @@ Dominate FPS games with AI-powered aiming for free. **AIM Ghost VIP Suite – AI
 
 <div align="center">
 
-[![Download AIM Ghost VIP Suite](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://tinyurl.com/aim-ghost-vip-suite)
+[![Download AIM Ghost VIP Suite](https://img.shields.io/badge/Download-5865F2?style=for-the-badge&logo=github)](https://share.google/wyNdQoWBG8WXUkhCA)
 
 **Version 7.0.0** — Free AI aimbot and ESP suite. May 2026 update. Zero cost. No payment.
 
